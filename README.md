@@ -62,4 +62,4 @@ Durante minha trajetória, já explorei várias áreas:
 ## Contato
 
 📧 Email: jhonatanborgesouza@gmail.com
-💼 LinkedIn: [https://www.linkedin.com/in/by-jhona/](#)  
+💼 LinkedIn: [https://www.linkedin.com/in/by-jhona/](https://www.linkedin.com/in/by-jhona/)  
